@@ -1,12 +1,12 @@
-# The Amygdala Project 🧠
+# The Amygdala and Nervous Sytem🧠
 
-**A Neurophilosophical Framework Exploring Ego, Attention, Shame, and Liberation**
+**A Neurophilosophical Framework Exploring Ego, Attention, Shame, and Love and Liberation**
 
 ---
 
 ## 🧭 Overview
 
-**The Amygdala Project** is a conceptual research framework combining neuroscience, psychology, and philosophy to explore the triadic relationship between **ego**, **attention**, and **shame**—proposing that liberation emerges through **stillness**, **presence**, and **compassion**.
+**The Amygdala and Nervous System* is a conceptual research framework combining neuroscience, psychology, and philosophy to explore the triadic relationship between **ego**, **attention**, and **shame**—proposing that liberation emerges through **stillness**, **presence**, and **compassion**.
 
 This project reinterprets love not as an emotion but as a **neural field of coherence** and repositions ego as a simulation, attention as stimulation, and shame as the residue of identity negotiation. It draws from both Eastern contemplative wisdom and Western scientific inquiry.
 
